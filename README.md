@@ -219,6 +219,7 @@ winnie the pooh
 boxing
 
 (ง'̀-'́)ง
+(ง •̀_•́)ง
 fight
 
 ◖ᵔᴥᵔ◗ ♪ ♫ 
@@ -334,6 +335,91 @@ peepers
 
 {ಠʖಠ}
 judgemental
+
+(˵ ͡° ͜ʖ ͡°˵)
+blush
+
+☉ ‿ ⚆
+derp
+
+(= ФェФ=)
+cat
+
+(◕ᴥ◕ʋ)
+dog
+
+ᕕ(⌐■_■)ᕗ ♪♬
+dance
+
+ヽ( •_)ᕗ
+dab
+
+ヽ༼ ຈل͜ຈ༼ ▀̿̿Ĺ̯̿̿▀̿ ̿༽Ɵ͆ل͜Ɵ͆ ༽ﾉ
+clique / crew
+
+(ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
+excited
+
+(⌐■_■)︻╦╤─ (╥﹏╥)
+execution
+
+(－‸ლ)
+facepalm
+
+(ˆ⺫ˆ๑)<3
+fart
+
+ಠ_ರೃ
+gentleman / sir
+
+( ͡° ͜ʖ ͡°)ﾉ⌐■-■
+glasses off
+
+( ಠ ͜ʖ ರೃ)
+lenny sir
+
+┬┴┬┴┤( ͡° ͜ʖ├┬┴┬┴
+lenny stalker
+
+ヽ(｀Д´)⊃━☆ﾟ. * ･ ｡ﾟ,
+magic
+
+✿ڿڰۣ—
+rose
+
+ツ
+smile
+
+¬‿¬
+smirk
+
+ε/̵͇̿̿/’̿’̿ ̿(◡︵◡)
+suicide
+
+\(^-^)/
+thanks
+
+(๑•̀ㅂ•́)ง✧
+victory
+
+(っ^з^)♪♬
+whistle
+
+＼(＾O＾)／
+woo
+
+\( ﾟヮﾟ)/
+yay
+
+(⊙＿⊙')
+WTF
+
+(•̀ᴗ•́)و ̑̑
+yeah
+
+⊹╰(⌣ʟ⌣)╯⊹
+zen
+
 ```
 
 Note:
