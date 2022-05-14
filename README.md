@@ -270,7 +270,7 @@ looking down
 (⊃｡•́‿•̀｡)⊃
 im a hugger
 
-(∩｀-´)⊃━☆ﾟ.*･｡ﾟ
+(∩｀-´)⊃━ ☆ﾟ.*･｡ﾟ
 wizard
 
 (っ˘ڡ˘ς)
@@ -326,6 +326,9 @@ Wave Dance
 
 \(ᵔᵕᵔ)/
 Happy Hug
+
+( ⌒o⌒)人(⌒-⌒ )v 
+high five!
 
 ᴖ̮ ̮ᴖ
 resting my eyes
