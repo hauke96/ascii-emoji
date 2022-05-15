@@ -294,6 +294,9 @@ hitchhiking
 (◠﹏◠)
 satisfied
 
+(◠‿◠)
+happy
+
 (ᵟຶ︵ ᵟຶ)
 sad and crying
 
