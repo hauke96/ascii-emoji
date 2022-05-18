@@ -1,4 +1,22 @@
 ```
+¯\_(ツ)_/¯
+shrug face
+
+~(^-^)~
+Wave Dance
+
+\(ᵔᵕᵔ)/
+Happy Hug
+
+(◠‿◠)
+happy
+
+ヽ(´▽`)/
+happy face  
+
+( ⌒o⌒)人(⌒-⌒ )v 
+high five!
+
 ʘ‿ʘ
 innocent face 
 
@@ -35,9 +53,6 @@ cute face with big eyes
 （　ﾟДﾟ）
 surprised / loudmouthed 
 
-¯\_(ツ)_/¯
-shrug face  
-
 ¯\(°_o)/¯
 meh
 
@@ -55,9 +70,6 @@ excited
 
 ε=ε=ε=┌(;*´Д`)ﾉ
 running 
-
-ヽ(´▽`)/
-happy face  
 
 ヽ(´ー｀)ノ
 basking in glory  
@@ -294,9 +306,6 @@ hitchhiking
 (◠﹏◠)
 satisfied
 
-(◠‿◠)
-happy
-
 (ᵟຶ︵ ᵟຶ)
 sad and crying
 
@@ -326,15 +335,6 @@ taking a dump / straining
 
 ヽ( •_)ᕗ
 dab
-
-~(^-^)~
-Wave Dance
-
-\(ᵔᵕᵔ)/
-Happy Hug
-
-( ⌒o⌒)人(⌒-⌒ )v 
-high five!
 
 ᴖ̮ ̮ᴖ
 resting my eyes
