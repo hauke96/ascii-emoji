@@ -149,6 +149,12 @@ strut
 (⊙_◎)
 zoned
 
+(≖_≖ )
+not sure if
+
+( ¬ _¬ )
+sure
+
 ミ●﹏☉ミ
 crazy
 
@@ -359,9 +365,6 @@ dog
 
 ᕕ(⌐■_■)ᕗ ♪♬
 dance
-
-ヽ( •_)ᕗ
-dab
 
 ヽ༼ ຈل͜ຈ༼ ▀̿̿Ĺ̯̿̿▀̿ ̿༽Ɵ͆ل͜Ɵ͆ ༽ﾉ
 clique / crew
