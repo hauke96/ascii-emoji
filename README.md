@@ -66,13 +66,13 @@ angry face
 at what cost
 
 ☜(⌒▽⌒)☞
-excited 
+excited
 
 ε=ε=ε=┌(;*´Д`)ﾉ
-running 
+running
 
 ヽ(´ー｀)ノ
-basking in glory  
+basking in glory
 
 ᵒᴥᵒ#
 kitty emote
@@ -154,6 +154,9 @@ not sure if
 
 ( ¬ _¬ )
 sure
+
+( ▀ ͜͞ʖ▀) =ε/̵͇̿̿/’̿’̿ ̿ ̿̿ ̿̿ ̿̿ 
+Agent with gun
 
 ミ●﹏☉ミ
 crazy
