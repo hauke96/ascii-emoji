@@ -393,8 +393,11 @@ glasses off
 ( ಠ ͜ʖ ರೃ)
 lenny sir
 
-┬┴┬┴┤( ͡° ͜ʖ├┬┴┬┴
-lenny stalker
+┬┴┬┴┤ ( ͡° ͜ʖ├┬┴┬┴
+stalker
+
+┬┴┬┴┤ ͜ʖ ͡°) ├┬┴┬┴
+stalker
 
 ヽ(｀Д´)⊃━☆ﾟ. * ･ ｡ﾟ,
 magic
